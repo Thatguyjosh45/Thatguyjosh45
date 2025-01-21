@@ -1,3 +1,4 @@
+![image](https://github.com/user-attachments/assets/8765dfa0-ecdb-4618-ad0a-551043c43caf)
 
 I'm Josh
 Digital Craftsman (Developer / Programmer)
